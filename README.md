@@ -7,3 +7,5 @@
 - 📫 How to reach me: ahtiishamjaved223@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm a full time PC Gamer
+- ⚡ Just fact: I'm a going to setup a new startup
+- 
