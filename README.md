@@ -8,4 +8,4 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm a full time PC Gamer
 - ⚡ Just fact: I'm a going to setup a new startup
-- 
+- 💬 Get connected: https://www.linkedin.com/in/ahtishamjaved/
